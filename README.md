@@ -1,1 +1,1 @@
-# Prime-nu
+Abdikhaliq ibrahim mohamed
